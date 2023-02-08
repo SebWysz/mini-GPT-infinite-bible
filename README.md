@@ -8,3 +8,5 @@ https://www.youtube.com/watch?v=kCc8FmEb1nY
 Link to where I got the bible text file (King James Version): 
 
 https://www.sacred-texts.com/bib/osrc/ 
+
+Unfinished :/
