@@ -9,4 +9,4 @@ Link to where I got the bible text file (King James Version):
 
 https://www.sacred-texts.com/bib/osrc/ 
 
-Unfinished :/
+Work in progress
